@@ -1,10 +1,28 @@
 # anewrepository1
-描述可以为中文
+666描述 BUKEMIAOSHU
 
-fuck 
-fuck！！！
-！！
+你是傻逼A 
 
 
 
-！！！
+SB
+
+
+
+SB
+SB
+SB
+SB
+S
+B
+SB
+S
+BS
+B
+SB
+SB
+B
+SB
+S
+BS
+BS
